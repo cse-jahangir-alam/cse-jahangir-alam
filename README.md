@@ -5,7 +5,7 @@
 
 ⚙️ Skilled in system administration, database optimization, and full-cycle project delivery — from planning to deployment.  
 
-🌐 Connect with me: [LinkedIn](https://www.linkedin.com/in/csejahangir/)
+🌐 Connect with me: [LinkedIn](https://www.linkedin.com/in/csejahangiralam/)
 
 ---
 
